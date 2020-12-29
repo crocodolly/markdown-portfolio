@@ -1,1 +1,1 @@
-[Stripper by Vladimir Grigoryan] [https://www.google.com/url?sa=i&url=https%3A%2F%2Ffineartamerica.com%2Ffeatured%2Fstripper-vladimir-grigoryan.html&psig=AOvVaw048qA911SL83_2RXJuMP6J&ust=1609312171295000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOi83JTR8u0CFQAAAAAdAAAAABBD]
+![Stripper by Vladimir Grigoryan] (https://www.google.com/url?sa=i&url=https%3A%2F%2Ffineartamerica.com%2Ffeatured%2Fstripper-vladimir-grigoryan.html&psig=AOvVaw048qA911SL83_2RXJuMP6J&ust=1609312171295000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOi83JTR8u0CFQAAAAAdAAAAABBD)
