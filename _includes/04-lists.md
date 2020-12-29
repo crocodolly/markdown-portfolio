@@ -5,6 +5,6 @@ I like:
 4. Maxing dad's credit card
 5. Skipping gym
 6. Scaring her
-  6a. Screwing him
+  1. Screwing him
 7. Killer clothes
 8. Kicking nerds in the nose
